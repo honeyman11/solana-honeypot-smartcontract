@@ -1,3 +1,7 @@
+![png](https://github.com/user-attachments/assets/0c392e48-5c18-49fc-90ec-334385ec46e6)
+
+
+
 # 📝Solana Honeypot Smart-Contract
 
 ## 🚀 Unleash the Ultimate Power of Solana Honeypot Pro V3! 🚀
