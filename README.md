@@ -65,4 +65,4 @@ Don’t just **launch a project**—build a **crypto empire**! Honeypot Pro Elit
 😶 We have **Dra1ners** too 😶
 
 For all inquiries, reach out via DM.  
-**Telegram: @T837381** 🖤
+**Telegram: @** 🖤
