@@ -1,6 +1,6 @@
 # solana-honeypot
 
-![378129833-0c392e48-5c18-49fc-90ec-334385ec46e6](https://github.com/user-attachments/assets/a37bffda-67e8-49b2-9c1f-2ef4f908355e)
+![378129833-0c392e48-5c18-49fc-90ec-334385ec46e6](https://github.com/user-attachments/assets/2ce9646a-37dc-4e3f-a674-d868931335f1)
 
 Honeypot Smart-Contract
 
