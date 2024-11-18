@@ -73,4 +73,4 @@ Don’t just **launch a project**—build a **crypto empire**! Honeypot Pro Elit
 
 For all inquiries, reach out via DM.  
 
-Regards, Telegramr: 
+Regards, Telegram: https://t.me/honeyman11 
